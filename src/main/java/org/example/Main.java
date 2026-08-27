@@ -7,7 +7,7 @@ public class Main {
 
         IO.println(String.format("Adorable Justice"));
         IO.println(String.format("Do not give me the attributes those pieces of shit have"));
-        IO.println(String.format("give me joy and love"));
+        IO.println(String.format("Give me joy and love"));
 
 
 
