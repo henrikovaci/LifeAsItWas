@@ -9,6 +9,15 @@ public class Main {
         IO.println(String.format("Do not give me the attributes those pieces of shit have"));
         IO.println(String.format("Give me joy and love"));
 
+        IO.println(String.format("They want filthy money"));
+        IO.println(String.format("The shit the waste"));
+        IO.println(String.format("They want to destroy my life"));
+        IO.println(String.format("They want to destroy my dream"));
+
+
+
+
+
 
 
     }
