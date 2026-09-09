@@ -1,6 +1,3 @@
-Life as it was, and even better. Not for evryone. 
-
-
 Sad facts about Henri Kovaci quello originale
 
 Me Henri Kovaci moved to the Netherlands because a job offer from a bank to work as software engineer. In the Netherlands, I rented a room for a short period of time. I had a argue with my landlord because he didnt give me part of the deposit. Angry I said I blow up the place. He said me you are a terrorist.
