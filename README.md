@@ -63,4 +63,14 @@ Fatjon
 My name is Henri Kovaci ( Eni )
 
 
-I did not forgive them. 
+I did not forgive them.
+
+
+
+
+
+I have been isolated for around 3 years.
+my debit card has been blocked and I do not remember the password of my credit card. I am taking money from my father pension. I get around 2 euro a day and around once in 3 days around 5 euro
+I woke up around less then 6 months ago
+I went through bad times. under the medication of sadik h.lala itried suicide. i was about to jump from the second floor ( italian counting ). my mother and my father saved me!
+I have a different doctor now
