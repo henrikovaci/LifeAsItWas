@@ -46,7 +46,7 @@ It took me around 1 year to recover. Later i went back to Amsterdam with few mem
 
 
 Henri was bullied by Ani Ibrahimi. He was called names like Nikoleta.
-He bullied me for more than 1 year. I gave him a punch and knocked him down. Then he came with a group of friends to beat me. I was with one friend. I said him to leave. And approached the group. They didnt couldnt beat me.
+He bullied me for more than 1 year. I gave him a punch and knocked him down. After he come with a group of friends but the informatics teacher helped me. Then he came with another group of friends to beat me. I was with one friend. I said him to leave. And approached the group. They didnt couldnt beat me.
 
 
 When i was from 4 to 6 years old i was abused sexualy by some older guys at my neighborhood.
