@@ -1,4 +1,4 @@
-Sad facts about Henri Kovaci quello originale
+Sad facts about Henri Kovaci
 
 Me Henri Kovaci moved to the Netherlands because a job offer from a bank to work as software engineer. In the Netherlands, I rented a room for a short period of time. I had a argue with my landlord because he didnt give me part of the deposit. Angry I said I blow up the place. He said me you are a terrorist.
 Then i reported it to the police. I was really scared. Had not done any drugs. Was really confused and scared of what had happened.
@@ -60,12 +60,12 @@ Fatjon
 My name is Henri Kovaci ( Eni )
 
 
-I did not forgive them. 
-
-
-
+I did not forgive them.
 I have been isolated for around 3 years.
 my debit card has been blocked and I do not remember the password of my credit card. I am taking money from my father pension. I get around 2 euro a day and around once in 3 days around 5 euro
+
 I woke up around less then 6 months ago
+
 I went through bad times. under the medication of sadik h.lala itried suicide. i was about to jump from the second floor ( italian counting ). my mother and my father saved me!
+
 I have a different doctor now
