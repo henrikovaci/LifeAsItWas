@@ -71,3 +71,5 @@ I went through bad times. under the medication of sadik h.lala itried suicide. i
 I have a different doctor now 
 
 I do not have memories of my past lifes!
+
+I did not see any tv in more than 3 years
