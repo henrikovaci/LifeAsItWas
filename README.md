@@ -68,4 +68,6 @@ I woke up around less then 6 months ago
 
 I went through bad times. under the medication of sadik h.lala itried suicide. i was about to jump from the second floor ( italian counting ). my mother and my father saved me!
 
-I have a different doctor now
+I have a different doctor now 
+
+I do not have memories of my past lifes!
