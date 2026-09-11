@@ -82,4 +82,4 @@ I am not a pederast
 
 I am not a pedophile
 
-Please chose to be non VOID
+Please chose to be not VOID
