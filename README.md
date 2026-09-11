@@ -83,3 +83,6 @@ I am not a pederast
 I am not a pedophile
 
 Please chose to be not VOID
+
+
+I studied from books and some video lectures i could find online during my bachelor at the polytechnic of Turin. I did not go to lectures because I was not understanding lectures becsuse of a language gap.I had a bad accommodation for some time so I couldnt learn that much. Later when I was in a dormitory I achieved good results allways studying by myself. Around one year I was also depresed I think. That is why I could not achieve a really high grade in the bachelor. It was 99/110. I passed the hardest exam Algoritmi e Programmazione Avanzata with a grade of 30/30. Because I really liked studing it. Exam with the lowest pass rate.
