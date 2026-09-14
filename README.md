@@ -57,7 +57,6 @@ Indrit Karaj
 Olsi Zanaj
 Zeni Karaj
 Fatjon
-My name is Henri Kovaci ( Eni )
 
 
 I did not forgive them.
