@@ -64,15 +64,10 @@ I did not forgive them.
 I have been isolated for around 3 years.
 my debit card has been blocked and I do not remember the password of my credit card. I am taking money from my father pension. I get around 2 euro a day and around once in 3 days around 5 euro. i was saving money for difficult days like this.
 
-I woke up around less then 6 months ago
-
 I went through bad times. under the medication of sadik h.lala itried suicide. i was about to jump from the second floor ( italian counting ). my mother and my father saved me!
 
 I have a different doctor now 
 
 I do not watch television. watched only few times in the last 3 years
-
-Please choose to be not VOID
-
 
 I studied from books and some video lectures i could find online during my bachelor at the polytechnic of Turin. I did not go to lectures because I was not understanding lectures becsuse of a language gap.I had a bad accommodation for some time so I couldnt learn that much. Later when I was in a dormitory I achieved good results allways studying by myself. Around one year I was also depresed I think. That is why I could not achieve a really high grade in the bachelor. I graduated with 99/110 in Computer Engineering. I passed the hardest exam Algoritmi e Programmazione Avanzata with a grade of 30/30. Because I really liked studing it. Exam with the lowest pass rate.
