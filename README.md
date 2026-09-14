@@ -82,6 +82,8 @@ I am not a pederast
 
 I am not a pedophile
 
+I never has a bomb
+
 Please chose to be not VOID
 
 
