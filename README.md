@@ -72,17 +72,7 @@ I have a different doctor now
 
 I do not have memories of my past lifes!
 
-I did not see any tv in more than 3 years
-
-I am heterosexual
-
-I am not a bythqir
-
-I am not a pederast
-
-I am not a pedophile
-
-I never has a bomb
+I do not watch television. watched only few times in the last 3 years
 
 Please chose to be not VOID
 
