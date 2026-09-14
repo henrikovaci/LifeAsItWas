@@ -70,11 +70,9 @@ I went through bad times. under the medication of sadik h.lala itried suicide. i
 
 I have a different doctor now 
 
-I do not have memories of my past lifes!
-
 I do not watch television. watched only few times in the last 3 years
 
-Please chose to be not VOID
+Please choose to be not VOID
 
 
 I studied from books and some video lectures i could find online during my bachelor at the polytechnic of Turin. I did not go to lectures because I was not understanding lectures becsuse of a language gap.I had a bad accommodation for some time so I couldnt learn that much. Later when I was in a dormitory I achieved good results allways studying by myself. Around one year I was also depresed I think. That is why I could not achieve a really high grade in the bachelor. I graduated with 99/110 in Computer Engineering. I passed the hardest exam Algoritmi e Programmazione Avanzata with a grade of 30/30. Because I really liked studing it. Exam with the lowest pass rate.
