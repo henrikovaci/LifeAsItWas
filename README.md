@@ -51,12 +51,15 @@ He bullied me for more than 1 year. I gave him a punch and knocked him down. Aft
 
 When i was from 4 to 6 years old i was abused sexualy by some older guys at my neighborhood.
 Their names are:
-Ernald Domi
+Ernald Domi (Nedi)
 Erald Ndocaj
-Indrit Karaj
 Olsi Zanaj
-Zeni Karaj
+Shkelzen Karaj (Zeni)
 Fatjon
+
+Later around less then 10 years old i was abused by:
+Indrit Karaj
+
 
 I did not forgive them.
 
