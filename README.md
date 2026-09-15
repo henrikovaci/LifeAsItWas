@@ -57,7 +57,7 @@ Olsi Zanaj
 Shkelzen Karaj (Zeni)
 Fatjon
 
-Later around less then 10 years old i was abused by:
+Later around 10 years old i was abused by:
 Indrit Karaj
 
 
