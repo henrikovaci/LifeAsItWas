@@ -78,3 +78,5 @@ I studied from books and some video lectures i could find online during my bache
 The last job i had was for ServiceNow. I stopped working for them around 3 years ago. They did not pay me anymore!
 
 I do now volontary work for Gods
+
+I am Henri Kovaci quello originale
