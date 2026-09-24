@@ -40,8 +40,6 @@ Parents come to pick me from the Netherlands to Albania. They where informed by 
 
 On 18 of Feb (probably) i was back in Albania.
 
-i couldnt speak.
-
 It took me around 1 year to recover. During that year I was unconscious most of the time. I was scared and traumatized. I was not understanding what was happening around me. I was asking my father if this is a game. His answer has been always no. I had suicidal ideas and tried suicide.
 Later i went back to Amsterdam with few memories.
 
