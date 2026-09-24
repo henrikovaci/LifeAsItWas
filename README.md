@@ -42,7 +42,8 @@ On 18 of Feb (probably) i was back in Albania.
 
 i couldnt speak.
 
-It took me around 1 year to recover. Later i went back to Amsterdam with few memories.
+It took me around 1 year to recover. During that year I was unconscious most of the time. I was scared and traumatized. I was not understanding what was happening around me. I was so bad that I was asking my father if this is a game. His answer has been always no.
+Later i went back to Amsterdam with few memories.
 
 
 Henri was bullied by Ani Ibrahimi. He was called names like Nikoleta.
