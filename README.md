@@ -44,7 +44,7 @@ It took me around 1 year to recover. During that year I was unconscious most of 
 Later i went back to Amsterdam with few memories.
 
 
-Henri was bullied by Ani Ibrahimi. He was called names like Nikoleta.
+Henri was bullied by Ani Ibrahimi. He was called names like Nikoleta. It was the name of a transexual. 
 He bullied me for more than 1 year. I gave him a punch and knocked him down. After he come with a group of friends but the informatics teacher helped me. Then he came with another group of friends to beat me. I was with one friend. I said him to leave. And approached the group. They didnt couldnt beat me.
 
 
